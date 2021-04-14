@@ -1,2 +1,1 @@
-er es snell gemacht
-Ich liebe Gott
+Ich liebe Gott für seine Gnade
