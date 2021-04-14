@@ -1,3 +1,1 @@
-er es snell gemacht
-Ich liebe Gott
-Awesome working at Umuzi
+data for the readme in the milkshake branch
