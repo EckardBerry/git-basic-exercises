@@ -1,1 +1,1 @@
-Ich liebe Gott für seine Gnade
+Ich liebe Gott für seine Gnade.
